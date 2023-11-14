@@ -1,0 +1,2 @@
+Ad: https://www.youtube.com/watch?v=wkT0oaExtKQ
+- Lander: https://start.digitalleasing.com/hey-yt?utm_campaign=20559762465&utm_source=ytv&utm_medium=cpc&utm_content=youtube.com&utm_term=&seg_aprod=&ad_id=674486364437&utm_campaign=20559762465&utm_source=ytv&utm_medium=cpc&utm_content=youtube.com&utm_term=&seg_aprod=&ad_id=674486364437&gclid=Cj0KCQiAr8eqBhD3ARIsAIe-buPz8ie_D2GVu0ucKjhGTZ3TAdmo0vNLhYi3aFogoivQSCBPv-YAwFQaAhj0EALw_wcB
